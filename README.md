@@ -1,1 +1,1 @@
-Human-AI collaboration
+Human-AI collaboration:
