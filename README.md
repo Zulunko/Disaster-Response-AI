@@ -1,2 +1,1 @@
 Human-AI collaboration:
-Human
